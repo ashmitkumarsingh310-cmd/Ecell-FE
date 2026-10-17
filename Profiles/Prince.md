@@ -1,0 +1,1 @@
+Hello everyone! I’m Prince from Haryana, pursuing B.Tech in Computer Science at AIT Pune. My key strengths are discipline, determination, teamwork, and adaptability. I’m a state-level gymnastics silver medalist, demonstrating my dedication and perseverance. I’m passionate about technology, sports, and continuous learning, and I strive to achieve excellence in everything I do.
